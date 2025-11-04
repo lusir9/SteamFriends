@@ -27,3 +27,4 @@
 | ![](https://avatars.steamstatic.com/1191c81a57194f64acfcda94f0fd0cb94e92eff7.jpg) | 萧炎        | [76561198795396261](https://steamcommunity.com/profiles/76561198795396261/) | ✅           | 2025-11-01 12:03:15 |                |          |
 | ![](https://avatars.steamstatic.com/56b220d345abff817b08b85babdd6ca1f9f2179d.jpg) | Hime Moli | [76561198122881699](https://steamcommunity.com/profiles/76561198122881699/) | ✅           | 2025-11-02 09:03:17 |                |          |
 | ![](https://avatars.steamstatic.com/73e149d2f9f52caf4a3d09c8bc4019dba75f14a2.jpg) | 好多鱼       | [76561198117249905](https://steamcommunity.com/profiles/76561198117249905/) | ✅           | 2025-11-02 07:04:43 |                |          |
+| ![](https://avatars.steamstatic.com/fde73ca782e59f5b732b347b2f2002deea4cbd9f.jpg) | 洗心革面 不在骂人 | [76561198424494464](https://steamcommunity.com/profiles/76561198424494464/) | ✅           | 2025-11-03 11:26:41 |                |          |
